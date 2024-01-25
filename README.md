@@ -14,6 +14,6 @@ I'm always excited to collaborate on projects that challenge me and push the bou
                     engenharia.alexandreoliveira@gmail.com
                     +55 Telephone
 
-⚡ Fun fact: I love playing the guitar and I also love dogs, mainly Dobermans.
+⚡ Fun fact: I love playing the guitar and I also love dogs, mainly Dobermanns.
 
 Feel free to browse my repositories and let's get in touch to build something amazing together!
